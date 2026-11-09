@@ -1,1 +1,1 @@
-# spor-toto-analiz
+# spor-toto-analizz
